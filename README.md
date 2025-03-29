@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻| Into Software Development & AI<br>🏫| 2nd year computer & Ai student<br>📄| into problem solving , machine learning  <br>
+💻| Software Development & AI<br>🏫| 2nd year computer & Ai student<br>📄| into problem solving , machine learning  <br>
 
 
 ## 🌐 Socials:
