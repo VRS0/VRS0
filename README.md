@@ -1,5 +1,5 @@
 # Abdullah Haitham 👨‍💻:
-💻| Software Development & AI<br>🏫| 3rd year computer & Ai student<br>📄| into problem solving , AI  <br>
+💻| Software Development & AI<br>🏫| 3rd year computer & Ai student<br>📄| AI Enthusiast , Problem Solver  <br>
 
 
 ## 🌐 Socials:
