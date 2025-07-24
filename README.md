@@ -1,4 +1,4 @@
-# Abdullah Haitham 👨‍💻:
+# Abdullah Haitham M 👨‍💻
 💻| Software Development & AI<br>🏫| 3rd year computer & AI student<br>🌐| AI Enthusiast , Problem Solver  <br>
 
 
